@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @pasoonbarak
+- 👋 Hi, I’m pasoon barakzai
 - 📫 How to reach me pasoon.barakzai12@gmail.com
 
 <!---
